@@ -1,3 +1,3 @@
 # brud
-nellie's-laughing-invention
-Bruddah Brud
+brud.com is a stolen domain;
+Bruddah Brud is home.
